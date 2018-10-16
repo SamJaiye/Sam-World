@@ -1,5 +1,13 @@
 # Sam-World
 
-Omosubomi Samuel Jaiyesimi MCMI - from Nigeria BTEC HND in Business July 2007
+1 Timothy 6 
 
-“The decision to study in CCL is one that I feel very fulfilled and satisfied about. From the onset, I was particularly impressed with the multi-cultural environment. I began with City & Guilds Visual Basic Programming and proceeded to Website design. What struck me most is the unprecedented & unparalled standard of teaching at the college that helped release the academic potential in me. The professional & interactive approach of the lecturers and management is absolutely impeccable! I did not only pass my initial studies in flying colours, I was helped to realise & develop more hidden potentials by studying BTEC OND Business & Finance. With the support and encouragement of the members of staff, I went further for the BTEC Higher National Diploma in Business & Finance - HND with distinctions which gave me the eligibility to become a member of Chartered Management Institute (CMI). Upon finishing my studies in June/July 2005, I was immediately offered an Assistant Manager position at Welcome Break Limited. Today, I am very happy knowing that I made the right decision to choose CCL. I am ever so grateful to the distinguished members of staff for helping me discover my potentials, helping me develop & preparing me to deploy it in whatever firm I choose to work. If you are considering coming to CCL, I’ve got three words for you.... GO FOR IT! You will never regret it.”
+Pursue
+	1. righteousness
+	2. godliness
+	3. faith
+	4. love
+	5. endurance
+  6. Gentleness
+Do good and Be rich in good deeds, and to be generous and willing to share 1Tim6:18
+Put your hope in God, who richly provides us with everything for our enjoyment 1Tim6:17
